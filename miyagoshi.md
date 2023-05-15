@@ -1,1 +1,1 @@
-miyagoshi sota dayo　unchi
+miyagoshi sota dayo　unchi inchi
