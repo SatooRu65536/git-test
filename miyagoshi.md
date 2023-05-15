@@ -1,1 +1,1 @@
-miyagoshi sota
+miyagoshi sota dayo
